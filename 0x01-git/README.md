@@ -1,1 +1,1 @@
-Love always win
+Love always win yes
